@@ -1,1 +1,1 @@
-life is a series of commas, not periods
+File type:School
